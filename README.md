@@ -6,5 +6,5 @@ Get Cheat this Cheat Engine
 
 
 
-                     Go here to https://discord.gg/5FnBwDkhZS to get the bypass
+                     (https://discord.gg/5FnBwDkhZS) go here to get the bypass
                      
